@@ -1,5 +1,5 @@
 - 👋 Olá, sou @matheuslayer69
-- 👀 Temho interesse em músicas pesadas, livros, artes marciais, guitarras e catolicismo.
+- 👀 Tenho interesse em músicas pesadas, livros, artes marciais, guitarras e catolicismo.
 - 🌱 Estou atualmete aprendendo sobre matemática.
 - 💞️ Eu pretendo colaborar com certas produções 
 - 📫 Como entrar em contato comigo: joao.dasilva@escola.pr.gov.br
