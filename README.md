@@ -1,6 +1,6 @@
 - 👋 Olá, sou @matheuslayer69
 - 👀 Tenho interesse em músicas pesadas, livros, artes marciais, guitarras e catolicismo.
-- 🌱 Estou atualmete aprendendo sobre matemática.
+- 🌱 Estou atualmente aprendendo sobre matemática.
 - 💞️ Eu pretendo colaborar com certas produções 
 - 📫 Como entrar em contato comigo: joao.dasilva@escola.pr.gov.br
 - ⚡ Fatos curiosos: Napoleão tinha 1,67 de altura. :(
